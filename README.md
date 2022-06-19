@@ -47,7 +47,7 @@ I’m **Siam Hasan** , an aspiring *entrepreneur* and *programmer* who is passio
 
 💬 **We can talk about Anything related to technology ,programming language ,business ,entrepreneurship and about any problem or idea.**
 
-🌐 **Let's:**<br>
+🌐 **Let's Connect:**<br>
 
 ‣ Linkedin : https://www.linkedin.com/in/siam-hasan-61b508165/<br>
 ‣ Whatsapp : +8801851414017
