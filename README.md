@@ -38,7 +38,7 @@ I’m **Siam Hasan** , an aspiring *entrepreneur* and *programmer* who is passio
   ‣ Web3.0 <br>
   ‣ Blockchain<br>
   
- ⚡ **I can work as a:**<br>
+ ⚡ **I can work or collaborate as a:**<br>
  
  ‣ Frontend Developer <br>
  ‣ Backend Developer<br>
@@ -47,7 +47,7 @@ I’m **Siam Hasan** , an aspiring *entrepreneur* and *programmer* who is passio
 
 💬 **We can talk about Anything related to technology ,programming language ,business ,entrepreneurship and about any problem or idea.**
 
-🌐 **I will love to connect with you:**<br>
+🌐 **Let's:**<br>
 
 ‣ Linkedin : https://www.linkedin.com/in/siam-hasan-61b508165/<br>
 ‣ Whatsapp : +8801851414017
